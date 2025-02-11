@@ -1,16 +1,22 @@
-## Hi there 👋
+・❥ my names are Razputin or Ash ! — he/xe/they/it + lots n lots of neos
 
-<!--
-**meatcircuz/meatcircuz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+english
 
-Here are some ideas to get you started:
+level 18 — I have autism, ocd, and chronic pain ! pls b patient <3
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I hangout wherever, I usually try to avoid massively crowded spots
+
+feel free to interact, sit, cuddle, or whatever else ! I'm shy but i love to int with ppl
+
+​ ˚ ༘♡ ⋆｡˚
+
+△▽△▽△▽△▽△▽△▽△▽△▽
+
+𝗗𝗡𝗜 𝗶𝗳:
+
+basic dni criteria; skin stealers, roleplayers, makes fun of coping mechanisms, danganronpa fandom
+
+△▽△▽△▽△▽△▽△▽△▽△▽
+
+︵‿︵‿୨♡୧‿︵‿︵
+
