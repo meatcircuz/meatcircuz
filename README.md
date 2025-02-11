@@ -20,3 +20,4 @@ basic dni criteria; skin stealers, roleplayers, makes fun of coping mechanisms, 
 
 ︵‿︵‿୨♡୧‿︵‿︵
 
+![](https://static.wikia.nocookie.net/sonic/images/e/e1/Jam_credits_puppy.png/revision/latest?cb=20200313234517)
