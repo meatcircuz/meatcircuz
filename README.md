@@ -2,7 +2,7 @@
 
 english
 
-level 18 — I have autism, ocd, and chronic pain ! pls b patient <3
+level 17 — I have autism, ocd, and chronic pain ! pls b patient <3
 
 I hangout wherever, I usually try to avoid massively crowded spots
 
