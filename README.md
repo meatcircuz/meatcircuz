@@ -22,4 +22,4 @@ basic dni criteria, skin stealers, roleplayers, makes fun of coping mechanisms, 
 
 wanna learn more ? check out my links !
 
-![](https://static.wikia.nocookie.net/sonic/images/e/e1/Jam_credits_puppy.png/revision/latest?cb=20200313234517)
+![]([https://static.wikia.nocookie.net/sonic/images/e/e1/Jam_credits_puppy.png/revision/latest?cb=20200313234517](https://static.wikia.nocookie.net/sonic/images/a/a7/Robotnik_48.png/revision/latest?cb=20151218134517))
