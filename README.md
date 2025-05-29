@@ -14,7 +14,7 @@ feel free to interact, sit, cuddle, or whatever else ! I'm shy but i love to int
 
 𝗗𝗡𝗜 𝗶𝗳:
 
-basic dni criteria; skin stealers, roleplayers, makes fun of coping mechanisms, danganronpa fandom
+basic dni criteria, skin stealers, roleplayers, makes fun of coping mechanisms, danganronpa fandom
 
 △▽△▽△▽△▽△▽△▽△▽△▽
 
