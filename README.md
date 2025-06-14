@@ -16,7 +16,7 @@ feel free to interact, sit, cuddle, or whatever else ! I'm shy but i love to int
 
 𝗗𝗡𝗜 𝗶𝗳:
 
-basic dni criteria, skin stealers, makes fun of coping mechanisms or disrespects boundaries, danganronpa fandom
+no dni.. will just block LMAO
 
 △▽△▽△▽△▽△▽△▽△▽△▽
 
