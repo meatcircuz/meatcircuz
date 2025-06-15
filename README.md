@@ -1,20 +1,18 @@
-・❥ my names are Razputin or Ash ! — he/xe/they/it + lots n lots of neos
+・❥ my names are Razputin or Ash !
 
 english
 
-level 18 — I have autism, ocd, and chronic pain ! pls b patient <3
+level 18
 
 Eggman selfshipper,, he's my trophy wife,,
 
 I hangout wherever, I usually try to avoid massively crowded spots
 
-feel free to interact, sit, cuddle, or whatever else ! I'm shy but i love to int with ppl. always c+h UNLESS my skins say otherwise, OTHER THAN THAT I LOVE CUDS !
+feel free to interact, sit, cuddle, or whatever else ! I'm shy but i love to int with ppl. always c+h unless my skins say otherwise. sometimes I rp
 
 ​ ˚ ༘♡ ⋆｡˚
 
 △▽△▽△▽△▽△▽△▽△▽△▽
-
-𝗗𝗡𝗜 𝗶𝗳:
 
 no dni.. will just block LMAO
 
